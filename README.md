@@ -1,7 +1,9 @@
 # About-me
 About me
+
 **Head of .NET at Understanding Recruitment**
-About
+
+
 💥Do you find yourself struggling to hire and retain the right talent?
 
 💥Would you like to see a small shortlist of highly relevant developers, leading to a shorter time to hire?
