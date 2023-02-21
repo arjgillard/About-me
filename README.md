@@ -17,9 +17,9 @@ With over 11 years of recruitment experience and 10 years of leadership experien
 Looking to scale or chat about the market? Reach out to me 👇🏽
 
 📱Mobile: +44 (0) 7791 141 227\
-📧Email: agillard@understandingrecruitment.co.uk\
-📆Book a call: https://calendly.com/agillard\
-👨‍💻GitHub: https://github.com/arjgillard/\
+📧Email: agillard@understandingrecruitment.co.uk \
+📆Book a call: https://calendly.com/agillard \
+👨‍💻GitHub: https://github.com/arjgillard/ \
 
 The market is very competitive - Most people I speak to like you need a team that is trustworthy and can attract the right developers to suit your requirements.
 
