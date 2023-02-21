@@ -1,43 +1,33 @@
-# About-me
-About me
+Do you want to partner with an experienced recruiter with a team of recruiters behind them?
 
-**Head of .NET at Understanding Recruitment**
+🔥 In 2022 we placed over 95 engineers into life-changing roles. 
 
+✅ You'll get access to my team of 6 that purely recruit .NET Developers or my team of 3 that purely recruit Elixir Developers.
+✅ Your requirements will be listened to.
+✅ You'll get market insights.
+✅ You'll save time - In 2022 My CV:IV ratio was 1.2:1
+✅ You'll be advised on Equity, Diversity and Inclusion initiatives.
+✅ You hit your hiring targets by getting the best developers
 
-💥Do you find yourself struggling to hire and retain the right talent?
+📈We scale teams across the UK, EU and US scale.
 
-💥Would you like to see a small shortlist of highly relevant developers, leading to a shorter time to hire?
+🤝 We partner with the likes of easyJet, Truelayer, S&P Global, Genius Sports, as well as others that you'd know and some that you wouldn't 😉.
 
-💥Want to get back to building awesome products?
+With over 11 years of recruitment experience and 10 years of leadership experience, you can be assured that you are in good hands.
 
-Every day I hear the pain from Development Managers, CTOs, Founders and Talent Teams about how they are struggling to scale as fast as they'd like because they aren't able to hire the right team.
+Looking to scale or chat about the market? Reach out to me 👇🏽
 
-✅ We listen to your requirements
-
-✅ We offer market insights
-
-✅ We will deliver a shortlist of highly relevant developers who want to work for YOU
-
-✅ We will take into account your Diversity and Inclusion initiatives
-
-✅ We do the work and manage the process
-
-✅ You get the best team
-
-📈 I partner with a variety of organisations from startups through to multi-nationals 🌍. I help companies scale and retain staff. With over 9 years recruitment experience and 7 years management / leadership experience you can be assured that you are in good hands.
-
-⭐️ My goal is to understand the needs of both my candidates and clients. I aim to work with my candidates for life and help shape their career for years to come. Clients constantly come back to me and also recommend me to their network.
-
-🙋🏽‍♂️ I grew up in South West London and now live in Hertfordshire. I love the gym and personal development. 
-
-Drop me a DM or call if you are would like more insight into the market, looking to scale or looking for a new role.
-
-📞Direct Dial: 01727 809079
-
-📱Mobile: 07791 141 227
-
+📱Mobile: +44 (0) 7791 141 227
 📧Email: agillard@understandingrecruitment.co.uk
-
 📆Book a call: https://calendly.com/agillard
+👨‍💻GitHub: https://github.com/arjgillard/
 
-Check out my Linkedin: https://www.linkedin.com/in/arjgillard/
+The market is very competitive - Most people I speak to like you need a team that is trustworthy and can attract the right developers to suit your requirements.
+
+Check out https://www.linkedin.com/in/arjgillard/details/recommendations/ 
+
+⭐️ You'll get an honest, candid approach to recruitment. I won't overpromise and underdeliver.
+
+🙋🏽‍♂️ I grew up in South West London and now live in Hertfordshire. I love the gym and personal development. I'm also a qualified mental health champion.
+
+🚀 I'm looking for experienced recruiters and trainees to join our .NET Team and Elixir Team. DM me for more info.🚀📈🔥🤝
