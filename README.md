@@ -3,6 +3,7 @@ Do you want to partner with an experienced recruiter with a team of recruiters b
 🔥 In 2022 we placed over 95 engineers into life-changing roles. 
 
 ✅ You'll get access to my team of 6 that purely recruit .NET Developers or my team of 3 that purely recruit Elixir Developers.
+
 ✅ Your requirements will be listened to.
 ✅ You'll get market insights.
 ✅ You'll save time - In 2022 My CV:IV ratio was 1.2:1
