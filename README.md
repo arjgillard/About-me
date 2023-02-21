@@ -19,7 +19,7 @@ Looking to scale or chat about the market? Reach out to me 👇🏽
 📱Mobile: +44 (0) 7791 141 227\
 📧Email: agillard@understandingrecruitment.co.uk \
 📆Book a call: https://calendly.com/agillard \
-👨‍💻GitHub: https://github.com/arjgillard/ \
+👨‍💻GitHub: https://github.com/arjgillard/ 
 
 The market is very competitive - Most people I speak to like you need a team that is trustworthy and can attract the right developers to suit your requirements.
 
@@ -29,4 +29,4 @@ Check out https://www.linkedin.com/in/arjgillard/details/recommendations/
 
 🙋🏽‍♂️ I grew up in South West London and now live in Hertfordshire. I love the gym and personal development. I'm also a qualified mental health champion.
 
-🚀 I'm looking for experienced recruiters and trainees to join our .NET Team and Elixir Team. DM me for more info.🚀📈🔥🤝
+
